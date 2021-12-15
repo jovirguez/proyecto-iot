@@ -14,7 +14,6 @@ https://poligran-my.sharepoint.com/:w:/g/personal/jovirguez_poligran_edu_co/EZ0X
 
 ### Presentación
 https://poligran-my.sharepoint.com/:p:/g/personal/jovirguez_poligran_edu_co/ETwXrHNtJXhIkARB6JiNSOQBWIVcDRugFr85eyQQoaT68Q?e=3qb3Vn
-Nota: Por favor nos confirma si puede ver los enlaces, tienen permisos de usuarios del politécnico
 
 ### Presentación del proyecto video en Youtube
 https://www.youtube.com/watch?v=bMOmUvUlLww
